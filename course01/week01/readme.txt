@@ -1,0 +1,1 @@
+No R exercises in week 1
